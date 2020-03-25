@@ -1,0 +1,1 @@
+See [this blog post](https://marcinciura.wordpress.com/2015/11/17/slicing-earth-carefully/)
